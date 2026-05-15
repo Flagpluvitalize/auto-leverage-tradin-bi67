@@ -1,4 +1,4 @@
-# 
+# scalping bot for derivatives premium Strategy | isolated-margin & risk-management is the best scalping bot for derivatives, featuring isolated-margin and risk-management. Smart,
 
 
 
